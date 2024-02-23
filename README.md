@@ -1,2 +1,2 @@
-# 21110353_Nguy-n-nh-Vi-t
+# 21110353_Nguyen Dinh Viet
 Bài Tập 23/2/2024
